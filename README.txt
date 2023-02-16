@@ -1,2 +1,0 @@
-Owen Koury
-Chicago Bears
